@@ -1,0 +1,23 @@
+- Taxation System
+- Iron a shirt
+- Stop paying for stuff you don't know what it is. 
+- Cooking
+- How to dice an onion
+- Read a map
+- Find north without a map
+- One solid party trick
+- One song on any instrument
+- Good long joke
+- Tie many knots
+- Constructive Feedback Giving
+- How to give a good toast or speech
+- How to memorise names when you meet people
+- Learn how to introduce two people
+- How to politely decline offers
+- How to put out a grease fire
+- How to dress - wedding, job, as an adult 
+- How to talk to strangers
+- How to disagree with others in civil manners
+- How to lift things
+- How to receive compliments
+- Learn how to learn to do new things
