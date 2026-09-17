@@ -45,4 +45,4 @@ _The source's ideas, not yours. Write the ones that matter to you as ideas in yo
 
 ## What struck me
 
-_Nothing yet._
+- **2026-09-17:** I still haven't figured out my alignment.
