@@ -37,4 +37,4 @@ _The source's ideas, not yours. Write the ones that matter to you as ideas in yo
 
 ## What struck me
 
-_Nothing yet._
+- **2026-09-17:** The marketing technique they are using to create a hype around a product which is not very unique, it is basically a wrapper around ClawdBot and very similar to my Hermes Agent.
